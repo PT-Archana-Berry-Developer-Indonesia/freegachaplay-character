@@ -1,0 +1,1 @@
+# freegachaplay-character
